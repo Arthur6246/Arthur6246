@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### bem vindo a meu perfil 💙
 <!--
 **Arthur6246/Arthur6246** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
