@@ -8,3 +8,8 @@ Meu nome  é  Arthur  Santos
 ### Voc  entrarr em contato comigo 📫
 
 santos.barros.arthur@escola.pr.gov.br
+
+
+
+
+![](https://media.tenor.com/uaJ0svqYQBQAAAAd/scarlet-witch-elizabeth-olsen.gif)
