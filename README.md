@@ -5,7 +5,7 @@ Meu nome  é  Arthur  Santos
 - Estou estudando Alura
 - Estou  esse espaço para minha  organizaçao e  compartilhamento dos meu proje des desenvolvido
 
-### Voc  entrarr em contato comigo 📫
+### Você entrar em contato comigo 📫
 
 santos.barros.arthur@escola.pr.gov.br
 
